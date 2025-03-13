@@ -633,7 +633,383 @@ Money Market Gift Cards
  
  
  
- 
+ Re: referral.. Appeal council labour order index pleading, booking granted filing record transcript appointment court probono event..Meeting. employments, development justice land outcome,rigth justice labour mandatory
+
+	
+	
+*Referral: revised. 
+Outcome review agreement 
+Nomination granted function posted graduated review finalize record job career low issue license permit 
+- chancellor policy awareness; 
+
+Referral notice :re - appeal 
+-
+Introduction : 
+Background : review re appeal formal ,master form  filing form instructional  completed  
+Check list, affidavit answer sock evidence, affidavit evidence, complain form investigate answer evidence .unopposed.. Opposite sock  council referral  ,provisional bank response evidence balance onus. Unopposed bank fund ..petition unoppsite learner council chancellor unoppsite , government unoppsite proof service ,proof registered mail unopposed .evidence clear ,,  enforcement low  unopposed event ..
+- * content files : 
+- summary 
+
+1. Section : 
+Introduction 
+ 1.Background 
+1.1Judgement leave appeal : jr 2461/15,attach Ccma record ,,
+Pg - 
+1.2 . Judgment leave judgment appeal
+:index of pleadings , affidavit proof ..
+
+ 1.3 . Notice of set down in order : check list : notice opposition , answers: affidavit:
+
+, reviews.
+1.4. letter security security :
+
+2.section :
+Introduction :
+Background 
+2.1.index of pleadings, noticed: compliance : Ccma file notice compliance outcome labour  , 
+2.2. rescission ruling : guide 
+2.3 .application for leave to appeal: media .
+3.Section :
+Introduction :
+Background :
+3.1 .application for leave to appeal :
+
+4.Section :
+4.1in the commission for concilliation :
+Variation of ruling , arbitration award 
+4.2 leave to appeal 
+
+- 5.section : application heads of argument .
+5.1 letter : dear ,affidavit 
+
+.6 section : 
+
+registration, form process : 
+6.1 psira application regulation check application 
+ Certificate occurent book. 
+6.2 register regulation nogada agreement job psira report individual Ccma ..:
+6.3. pratice manual of the labour RSA ,ccm module course .:
+
+6.4 labour ICBL ,check ,:permit work check saqa ,coid ,council job 
+- nomination form  social work
+-uif insurance labour ,application form appeal  form :
+- coid : application form instruction completed. ..regulation labour OSHA .nominate form, award  ,electrical compliance form  check regulation :
+Rules 
+
+7.section :
+7.1 report application head skill: development sale 
+7.2 record bookkeeping shop mall..:
+7.3 .cna  shopprite record extra saving: reward .office  save office cna casebook .parking cts return cash back  job employment document wallet appointment .. company relia hr ..experimental n.textbook .application tax.
+
+8. Section : 
+8.1 .skill development sasseta :
+,seta regulation , assessessment 
+
+sasseta ,
+certificate  form skill registration 
+Scie bono assessessment.
+8.2.translate  copy dr Congo ,saqa French English low attestation ,certificate diplomat , birthday document ..inpp
+Saqa check list :
+- 8.3.home affairs appeal check :
+
+
+_______________________________
+Conte file JA 37/19
+-appeal ,Estes issue  file 
+
+Re - appeal/ re- estate 
+
+- section 1.
+1.1 section 1.: order court notice petition:
+
+ .1.2 case 297/11/2024-16 points .:
+
+1.3 application for protection Cass :
+.1.4. justice complains bargaining levies 
+Ordered ,compliance , 
+contravention form investigation ammandement :107,163.7 nbcpss .
+1.5. justice complains bargaining levies ordered :.
+1.6. bargaining referal : jr 2462
+1.7. index pleading : 
+
+1.8.order court petition :
+1.9. affidavit in support of service by registered:
+1.10 .Proof affidavit : 
+1.11. Sherif complain : sherrif affidavit 
+- section 2:
+ 2.1.Affidavit in section criminal procedy
+- 2.2.complain form : details employer 
+2.3. PFA complain form : detail 
+2.4. complain form  details 
+2.5. affidavit in section  criminel procedure ..
+
+3.Section : 
+-3. File appeal record file move :
+3.1 pleading index retrieview file:
+3.2 refers in the labour ..
+3.3. master court documents files:
+3.4 notice appeal department,:
+3.5. referral.
+- 3.6honorable justice labour and: registray labour :.
+3.7 notice leave appeal : 
+.section 4
+4.1 section 
+4.1. notice of motion : petition for leave appeal .
+4.2 . submission.: transform industrial 
+4.3 application for judgement leave to appeal head argument.
+4.4 master court jurisdiction index pleading rigty low legacy litigat in execution of sole property.:
+4.5 .bid close : argument record retrieview files .head argument leave to appeal judge filing retrieved in support affidavit..
+4.6 . agreements judgement order order petition agreemy ..
+
+Section 5
+
+- 5.1Ccma process in Limon ,con ARB , rescission review  case audit ,case details eventy statist case file case audit audit award ..
+
+- 5.2 requested for arbitrat LRA form 7.13
+
+Section 6.
+6.1. skill e legit reviews guide .
+6.2. labour court and Ccma rules ,  
+6.3 complaint agy Sherriff central / ,( 019/1#/119.3 copy policy 
+6.4 . Labour court and ccmz rules ..
+6.5.skill development legisy reviews guide ..
+
+Section .
+
+-7. labour chairing disciplinary psira 
+7.1 department of labour register skill merseta topic. Peace ..
+7.2. labour on labour appeal jhb force ..
+7.3 To the director general : lab justice defense force .:
+Enforcement low ruling award notice compagny 
+
+
+7.4. development section bargaining : 
+Sector report office drawing engineering trade skill manufacture related process claim 
+
+
+7.5. directive order enforcement: 
+
+
+
+
+
+
+
+
+
+
+
+
+
+-referal : 
+* Section 
+
+
+	
+	
+- background review : 
+Occured in labour court and labour appeal court psira complain exempted investigation  security private industrial  investigate award ruling rescission  and record transcription provisional court  execution rwiten sherrif labour granted review  skill development 
+Investigation trial court evidence low burn award and outcome certificate council private sector ,saps and safety in development justice protection order issue Manuel and humain rigth intelligence service  trial court  point investigate  agreement  national council bargaining private security and provide fund  trial license term  outcome ,cipic sars intellectual property and revenue pension fund sector , building council agreement  justice labour  policy procedure hr gift  insurance and compensation dol  building evidence high court summons notice motion on leave to appeal refuse granted success  power arrested  debator creditor appeal high court and labour court appeal leave levy skill  magistration  ,,rigth humain legislator mendator security office and police office power attorney government framework regulator .trial cipic deregistered compagny private and private sector industrial ,revenue sector amendment business   ,notice motion  security docket saps docket system unity  power arrest warrant arrested claim   small business license labour appeal court and development justice master court .labour taxation matter and agreement provisional bargaining and judge order bargaining order pay R 70000Levie and saps member sapu order R 40000 levy contravention and deduction  judges appeal debator high court order no cost notice petition labour ad Ccma no cost made  order bargaining system agreement  taxation job order transcription 500 rand retrieview order DOJ ,100000 rand   public order  bargaining union build security  marksheet agreement post office challenge merite medal build post office function rank grade office safety minister police minister order  taxation high court magistrate and labour appeal court  security private function site .. postponed security office private guard court car guard court  police car guard court metropolitain and  safet transport. , investigator detective ,clearly guard order. Legal guard  policy procedure chancellor
+Parking mall court  guard  order security attorney and tenure order security bargaining security low tendered close order total claim 210500 rand claim  in high court and labour appeal court  guard court bargaing consolidation process before to protect compagny in process before to keep process of client bargaining agreement government minister granted  if judge process with file and put security challenges to keep protect process judge must grant amount of money is cost in labour bargaing and Ccma ,, compagny low enforcement gaek must pay post registered mail ,,in case of continue assessment in case library high court and labour appeal court open file book casebook retrieview must granted review  copyrith  in case government notice open file investigation site government legal paralegal warden safety saps must granted review in case warden search ambassador for more job car guard minister said and safety homes affairs must granted review  for pliagiarism and copy of job in case minister education high and land reform open supplieb open award outcome for review more skill development must granted sassa uif coid claim  by inspector lecture marker Sita project in case of irregularite ad regulation  file open Portofilio assessment accreditation seta sasseta skill  minister must granted notice of motion transcription..industrial minister society in case open files way block .must pay manufacture low claim   financial economic fund ..
+
+
+
+Trial victim labour witness labour claim security in the minister deputy , bill Amandment low .trial investigation claim contrevention .cash center bank stateme
+
+
+	
+	
+In the labour court of South africA
+In the labour appeal court of South Africa
+In the developmt justice court  master court 
+In high court  magistrate 
+Held in Johannesburg 
+
+- in the matter  between .:   case No jr 2461/15
+Ja 37/19
+
+
+Referral  :
+
+NO| Description of document. | Page no
+________________________________________
+-1 index notices :                              1-4
+Introduction :
+Background 
+
+-2 notice of motion:                              1-9
+
+
+-3 affidavit in support of application   5-9.
+
+
+
+-4 Proof of service  :                           10-14
+- . Notice of set down :
+
+
+-5 . Notice in term of rule: 7A             1-2
+
+
+
+-6. Records :                                           3-35
+
+
+
+-7.recording transcription:                35-43
+
+
+
+-8. Notice judgement leave appeal :43-49
+
+
+-9.affidavit registered mail in support:49-49
+
+
+
+- 10reason notice notice of motion : 50-55
+
+
+-11. Notice of opposition unopposed: 55-56
+
+
+- 12. Application for leave to appeal head argument 56-141
+- 13. Notice proof of service contract ruling record :282-300
+
+
+-14. notice  proof of service  skill development  record (300-582)
+
+
+-15. Notice outcome record gov appeal agreements ( 582-672)
+
+
+
+________________________________
+No| description of documents | page no
+
+- 1 notice of motion petition for leave to appeal : 1-36.
+
+- 2 notice of motion submission for application : 36-80
+
+- 3 Proof of service records ..
+
+-4 .affidavit in support of application register : 80-82
+
+-5.affidavit in terms of sect 44(1) complain : 82-95.
+
+-6. Notice of motion  order petion  petion  orders : 95-102
+
+-7.notice of record order transcript : 102-104
+
+-8 notice application for leave to appeal unnoppsite : 104-138
+
+-9. Notice proof of service contractor close :138-200
+
+- 10 notice proof of service applicant execution : 200-338
+-11. Notice proof of service : agreement contract : 338-416
+
+- 12 notice  notice affidavit record answer investigation:-416-458
+
+- 13. Notice of of gov notion motion outcome :   458-488 
+- 14. Notice of contract ccm close inlimine : 788- 
+- 15. Notice of skill of development agree application   ..
+
+----------------------------------
+Master of the high court service : 
+- 1.court service :civil law
+Name | service type | case type | created | case status | urn | manage •
+
+-urn : 1042024CIV004539
+- 1042024CIV004511
+-112024CIV00013
+-112024CIV00012
+-112024CIV00011
+-112024CIV00010
+-112024CIV00009
+-112024CIV00008
+-112024CIV00007
+-112024CIV00006
+-112024CIV00005
+
+- 2. Maintenance: 
+
+-3 protection order :
+
+- 4 status tracking :
+
+-5.Query management : 
+
+- my query list : 
+DOJONLINEEST 202312211 deceased estate ICT / system related ,  application 
+
+202312212 deceased estate .master file related query information ,, appointment booking ...
+--------__________________________
+Document 
+
+-Notice motion summon 
+- 
+
+ACTIVISM ROW STANDS FOR SOCIAL JUSTICE ORGANISATIONS & SOCIAL MOVEMENTS 2025
+Inbox
+
+Google Forms <forms-receipts-noreply@google.com> 
+	Fri, Jan 31, 7:13 PM (2 days ago)
+	
+	
+to me 
+
+
+
+Thanks for filling out ACTIVISM ROW STANDS FOR SOCIAL JUSTICE ORGANISATIONS & SOCIAL MOVEMENTS 2025
+Here's what was received.
+ACTIVISM ROW STANDS FOR SOCIAL JUSTICE ORGANISATIONS & SOCIAL MOVEMENTS 2025
+Applications close on 07 March 2025, or When applications have reached capacity. 
+Email *
+tshingombefiston@gmail.com
+ORGANISATION DETAILS
+What is the name of your organisation? *
+Tshingombe Ccma labour court DOJ/ ass police engineering 
+Name of the contact person or representative *
+Tshingombe
+Contact Number of representative *
+0725298946
+Email Address of representative *
+tshingombefiston@gmail.com
+Briefly describe the work of your organisation. (Less than 75 words) *
+Ccma labour court tshingombe vs security police officer rigth government mendator land provide fund .granted review
+Telephone Number for the organisation *
+0725298946
+Email address or the organisation *
+tshingombefiston@gmail.com
+Website URL *
+https:// tshingombe.com 
+Please upload a high resolution logo of your organisation *
+Submitted files
+		3formsubmission-request-ip-licence-mip-327-24-0100-000 sale force emet tshingombe - tshingombe fiston.pdf
+What festival theme would your organisation best fit under? *
+✓		Racial justice and anti-racism
+✓		Economic and social rights,
+✓		Environmental justice
+✓		LGBTQIA+ rights
+✓		The right to a fair trial and access to justice.
+✓		The rights of refugees and migrants
+✓		Women's rights and gender equality
+✓		Children's rights
+✓		The rights of persons with disabilities
+		Other:  	
+HUMAN RIGHTS FESTIVAL STAND REQUIREMENTS
+What size stand would you like? *
+3 x 3 Stand (R1000 - Includes table; 2 chairs and signage)	
+Do you require an electric plug point? This is an additional R150. *
+		Yes
+✓		No
+
+Create your own Google Form
+Does this form look suspicious? Report
+	
+
+
+
  
  
  
